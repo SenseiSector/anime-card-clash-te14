@@ -1,4 +1,4 @@
-
+automatic Script for anime card clash offers the most advanced anime card clash Script, with speed and god mode. Perfect for dominating any match.
 
 
 
